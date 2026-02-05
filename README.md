@@ -1,5 +1,5 @@
 # 💫 About Me:
-📕I am studying computer science in Lviv.
+Nothing interesting.
 
 
 ## 🌐 Socials:
